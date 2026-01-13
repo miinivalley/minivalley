@@ -8,7 +8,7 @@
  ⠀⠀⠀⠀⠀⠀⠀：https://teap0tzzz.carrd.co/# —⠀⠀　𓏴⠀ ¹⁵ 
 
 
-<a href="https://ibb.co/m5njP54v"><img src="https://i.ibb.co/TMQfNMtK/Tumblr-l-70866303757146.png" alt="Tumblr-l-70866303757146" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>s-afk sometimes, esp if on away/moon mode !</a><br /> 𓎟𓎟 
+<a href="https://ibb.co/m5njP54v"><img src="https://i.ibb.co/TMQfNMtK/Tumblr-l-70866303757146.png" alt="Tumblr-l-70866303757146" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>[artist ephermalnexus] . s-afk sometimes, esp if on away/moon mode !</a><br /> 𓎟𓎟 
 
 
 ⠀⠀⠀ ࣪⠀“ feels like I'm trapped in a maze „
